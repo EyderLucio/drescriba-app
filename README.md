@@ -1,1 +1,0 @@
-# drescriba-app
